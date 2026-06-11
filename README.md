@@ -1,6 +1,6 @@
 
 
-<img src="https://imgur.com/a/y78roF7" alt="kevsa-banner" style="border-radius: 15px;">
+<img src="https://i.imgur.com/I5T0Zin.jpeg" alt="kevsa-banner" style="border-radius: 15px;">
 <div align="center">
   <h1><pre>It's me 𝑲𝒆𝒗𝒔𝒂</pre></h1>
 </div>
