@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.imgur.com/gallery/banner-ghibli-VPB0tZO.jpg" alt="kevsa-banner" style="border-radius: 15px;">
+<img src="https://imgur.com/gallery/studio-ghibli-wallpaper-collection-Z7eZT5g#42WsJyr.jpg" alt="kevsa-banner" style="border-radius: 15px;">
 
 # It's me 𝑲𝒆𝒗𝒔𝒂
 
