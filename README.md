@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://ibb.co/C3bxgmw3"><img src="https://i.ibb.co/LXx4mY0X/6-CCEE650-CEE9-4469-8-F47-84438-BAF83-BC.jpg" alt="6-CCEE650-CEE9-4469-8-F47-84438-BAF83-BC" border="0"></a>
+<a href="https://ibb.co/vCYt3xr3"><img src="https://i.ibb.co/7x49nJTn/94-FDBC28-287-B-4-B91-8-BC2-584044-F2-D84-F.jpg" alt="94-FDBC28-287-B-4-B91-8-BC2-584044-F2-D84-F" border="0"></a>
 
 # It's me 𝑲𝒆𝒗𝒔𝒂
 
